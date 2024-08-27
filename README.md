@@ -1,0 +1,1 @@
+# ONE_Encriptador-de-Texto-G7
